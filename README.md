@@ -1,4 +1,4 @@
-## Salut 👋 Je suis Benoît
+## Salut 👋 Je suis Benoit
 
 Toujours à fond, jamais à la traîne !
 
